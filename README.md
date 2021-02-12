@@ -1,1 +1,0 @@
-# yeojingi.github.io
